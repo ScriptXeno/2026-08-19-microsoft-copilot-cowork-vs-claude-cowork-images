@@ -1,0 +1,1 @@
+# 2026-08-19-microsoft-copilot-cowork-vs-claude-cowork-images
